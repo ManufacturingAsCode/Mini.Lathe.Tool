@@ -1,0 +1,2 @@
+- https://www.reddit.com/r/metalworking/comments/1fp6lbc/mini_lathe_i_know_i_know/
+- https://www.reddit.com/r/Machinists/comments/17dkr87/hobbyist_vevor_7x16_vs_harbor_freight_7x10/
